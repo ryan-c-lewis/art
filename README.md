@@ -53,6 +53,10 @@ Around this time my anxiety began calming down as I began better integrating my 
 
 Around this time I stopped feeling the "need" to do art as therapy for myself. I felt more integrated and felt at peace understanding myself and having the ability to resolve my emotional and somatic issues. I stopped doing much art for a couple months.
 
-At this point I began feeling safe using art to calmly explore my inner world on a symbolic/aesthetic level. (Up until this point, art-making had always been an intense and anxiety-inducing activity.) Duality and blending of warm colors was still the primary feature in the stuff I made. Here is a piece I did when I finished re-reading the Harry Potter books over the Christmas break, representing the image in my head of these dramatic duels between Harry and Voldemort:
+At this point I began feeling safe using art to calmly explore my inner world on a symbolic/aesthetic level. (Up until this point, art-making had always been an intense and anxiety-inducing activity.) Here is a simple landscape. I challenged myself to try doing my "warm color blending" with merely construction paper and no scissors:
 
-![??](/pics/2025_01_WizardDuel.png)
+![Construction Paper Landscape](/pics/2024_13_ConstructionPaperLandscape.png)
+
+Duality and blending of warm colors was still the primary feature in most of the stuff I made. Here is a piece I did when I finished re-reading the Harry Potter books over the Christmas break, representing the image in my head of these dramatic duels between Harry and Voldemort:
+
+![Wizard Dual](/pics/2025_01_WizardDuel.png)
