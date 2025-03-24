@@ -67,6 +67,6 @@ Up to this point I had not bothered to learn any technique or theory, but I was 
 
 I began using quick sketches in place of journaling. Instead of tryng to translate my thoughts and feelings into paragraphs of words, I would do a rough 10 minute pencil sketch. This allowed for better integration between thoughts, feelings, and somatics. Usually I would start by holding a pencil in each hand and scribbling mindlessly, focusing on somatic experience. Then I would trace out shapes and find some sort of meaningful coherent image. Frequently I gravitated to zoomed-out perspectives of land and sky.
 
-![The Love of God](/pics/2025_03_TheLoveOfGodpng)
+![The Love of God](/pics/2025_03_TheLoveOfGod.png)
 
 ![Cosmic Cairn](/pics/2025_04_CosmicCairn.png)
