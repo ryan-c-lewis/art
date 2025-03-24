@@ -69,6 +69,6 @@ I began using quick sketches in place of journaling. Instead of tryng to transla
 
 ![The Love of God](/pics/2025_03_TheLoveOfGod.png)
 
-One frequent theme was a sense of combining small and large scales, as seen in the piece below. It is simultaenously a zoomed-in view of a small cairn (i.e. a pile of rocks marking a hiking trail), but also a zoomed-out cosmic tornado at the death of Christ on the cross. Often I found myself captivated by symbolic resonances between things like this, as well as the mixture of feelings associated with the different scales. In this case, the zoomed-in scale of the cairn feels calm to me while the zoomed-out scale feels intense. Sitting with the combination of these things allows me to gently sort out my fragmented inner world.
+One frequent theme was a sense of combining small and large scales, as seen in the piece below. It is simultaenously a zoomed-in view of a small cairn (i.e. a pile of rocks marking a hiking trail), but also a zoomed-out cosmic tornado at the death of Christ on the cross. Often I found myself captivated by symbolic resonances between things like this, as well as the mixture of feelings associated with the different scales. In this case, the zoomed-in scale of the cairn felt calm to me while the zoomed-out scale felt intense. Sitting with the combination of these things allowed me to gently sort out the fragmented and confusing parts of my inner world.
 
 ![Cosmic Cairn](/pics/2025_04_CosmicCairn.png)
