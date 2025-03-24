@@ -65,8 +65,10 @@ Up to this point I had not bothered to learn any technique or theory, but I was 
 
 ![Landscape](/pics/2025_02_Landscape.png)
 
-I began using quick sketches in place of journaling. Instead of tryng to translate my thoughts and feelings into paragraphs of words, I would do a rough 10 minute pencil sketch. This allowed for better integration between thoughts, feelings, and somatics. Usually I would start by holding a pencil in each hand and scribbling mindlessly, focusing on somatic experience. Then I would trace out shapes and find some sort of meaningful coherent image. Frequently I gravitated to zoomed-out perspectives of land and sky.
+I began using quick sketches in place of journaling. Instead of tryng to translate my thoughts and feelings into paragraphs of words, I would do a rough 10 minute pencil sketch. This allowed for better integration between thoughts, feelings, and somatics. Usually I would start by holding a pencil in each hand and scribbling mindlessly, focusing on somatic experience. Then I would trace out shapes and find some sort of meaningful coherent image. Frequently I gravitated to zoomed-out perspectives of land and sky with colors representing dusk, twilight, sunset, etc.
 
 ![The Love of God](/pics/2025_03_TheLoveOfGod.png)
+
+One frequent theme was a sense of combining small and large scales, as seen in the piece below. It is simultaenously a zoomed-in view of a small cairn (i.e. a pile of rocks marking a hiking trail), but also a zoomed-out cosmic tornado at the death of Christ on the cross. Often I found myself captivated by symbolic resonances between things like this, as well as the mixture of feelings associated with the different scales. In this case, the zoomed-in scale of the cairn feels calm to me while the zoomed-out scale feels intense. Sitting with the combination of these things allows me to gently sort out my fragmented inner world.
 
 ![Cosmic Cairn](/pics/2025_04_CosmicCairn.png)
