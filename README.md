@@ -60,3 +60,13 @@ At this point I began feeling safe using art to calmly explore my inner world on
 Duality and blending of warm colors was still the primary feature in most of the stuff I made. Here is a piece I did when I finished re-reading the Harry Potter books over the Christmas break, representing the image in my head of these dramatic duels between Harry and Voldemort:
 
 ![Wizard Dual](/pics/2025_01_WizardDuel.png)
+
+Up to this point I had not bothered to learn any technique or theory, but I was slowly becoming interested in that side of things. I began making simple attempts at introducing perspective:
+
+![Landscape](/pics/2025_02_Landscape.png)
+
+I began using quick sketches in place of journaling. Instead of tryng to translate my thoughts and feelings into paragraphs of words, I would do a rough 10 minute pencil sketch. This allowed for better integration between thoughts, feelings, and somatics. Usually I would start by holding a pencil in each hand and scribbling mindlessly, focusing on somatic experience. Then I would trace out shapes and find some sort of meaningful coherent image. Frequently I gravitated to zoomed-out perspectives of land and sky.
+
+![The Love of God](/pics/2025_03_TheLoveOfGodpng)
+
+![Cosmic Cairn](/pics/2025_04_CosmicCairn.png)
